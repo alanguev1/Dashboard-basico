@@ -1,1 +1,1 @@
-![Reportebásico](https://github.com/alanguev1/Dashboard-basico/assets/122288240/cd97c606-77c6-460d-926e-9671c368579d)
+![reporteba](https://github.com/alanguev1/Dashboard-basico/assets/122288240/01da0d3b-e15a-48df-bf76-eab0dfd82b3e)
